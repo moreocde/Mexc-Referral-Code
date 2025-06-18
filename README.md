@@ -1,6 +1,6 @@
 # Unlock Exclusive Benefits with MEXC Referral Code "mexc-1ZvUq" – Get Up to $5,000 Bonus and 50% Trading Fee Discount! 
 
-y signing up with the official **MEXC Referral Code: "mexc-1ZvUq", you can unlock welcome bonuses up to $5,000 and enjoy a generous 50% discount on trading fees**. 🔥
+By signing up with the official **MEXC Referral Code: "mexc-1ZvUq", you can unlock welcome bonuses up to $5,000 and enjoy a generous 50% discount on trading fees**. 🔥
 
 **Why Choose MEXC? Top Reasons Traders Love It**
 
